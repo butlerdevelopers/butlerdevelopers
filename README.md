@@ -1,3 +1,1 @@
-# 👋 Hi, We are Butler
-
-## SOMETHING BIG is coming soon!!!
+# 👋 Hi, We are Butler, and SOMETHING BIG IS COMING SOON!!!
